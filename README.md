@@ -36,7 +36,8 @@ At the end of the day, we're all humans just trying to live and do our best. We'
 
 I'm Francis, and I'm still **<mark>learning</mark>**.
 
-![selfi](selfi.jpeg)
+![selfi](/Users/adit/Downloads/selfi.jpeg )
+
 
 
 
