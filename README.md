@@ -29,7 +29,7 @@ Actually I'm still learning about these things so here you go:
 **Francis likes:**
 - Drink H<sub>2</sub>O
 - Breath O<sub>2</sub>
-- i think this is already too long
+- Make CuSO<sub>4</sub>
 
 ## Closing Statement
 At the end of the day, we're all humans just trying to live and do our best. We're not perfect, we're not omniscient, and we're not omnipotent. We're just trying to do our best and learn from the experiences we have.
