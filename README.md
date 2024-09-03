@@ -42,6 +42,9 @@ I don't care, you have to try to pull this first
 
 now push this
 
+now try to fetch and merge this
+
+
 
 
 
