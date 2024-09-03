@@ -38,11 +38,7 @@ I'm Francis, and I'm still **<mark>learning</mark>**.
 
 ![COBA GINIIIII](https://github.com/user-attachments/assets/32a3ce69-e1db-4dd7-9525-5fc7946c1652)
 
-I don't care, you have to try to pull this first
 
-now push this
-
-now try to fetch and merge this
 
 
 
