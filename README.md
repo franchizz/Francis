@@ -36,7 +36,8 @@ At the end of the day, we're all humans just trying to live and do our best. We'
 
 I'm Francis, and I'm still **<mark>learning</mark>**.
 
-![Click the pic!!!][(https://github.com/user-attachments/assets/0f8c1ed9-11f5-4fba-ae0a-a4604ce177c9)](https://www.instagram.com/francisadityac?igsh=aWFkZ2ZqMzVzcWJi)
+![COBA GINIIIII](https://github.com/user-attachments/assets/32a3ce69-e1db-4dd7-9525-5fc7946c1652)
+
 
 
 
