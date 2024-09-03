@@ -38,7 +38,7 @@ I'm Francis, and I'm still **<mark>learning</mark>**.
 
 ![COBA GINIIIII](https://github.com/user-attachments/assets/32a3ce69-e1db-4dd7-9525-5fc7946c1652)
 
-![Virtual BG](https://github.com/user-attachments/assets/a08e6787-4254-4f0b-993d-6cccfd87d5f0)
+
 
 
 
